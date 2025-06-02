@@ -1,0 +1,2 @@
+ChatGPT
+Luri (ia alura)
